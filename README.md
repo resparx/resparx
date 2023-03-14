@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @resparx, got rays of sun shine to make you blossom 💞️
 - :heart_eyes: love to collaborate with node people
-- :gift_heart: show me some React skills, and iam yours :stuck_out_tongue:
 - 📫 Reach me at ramprash.rspx@gmail.com,  :iphone: +91-8667863080
